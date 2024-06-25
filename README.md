@@ -1,2 +1,3 @@
 # Minha-coisas-nada-haver
 Não faço ideia do que estou fazendo aqui...
+CARA EU REALMENTE NÃO FAÇO IDEIA DO QUE TENHO QUE FAZER!!!!
